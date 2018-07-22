@@ -1,1 +1,8 @@
-# Mod-Boot
+- Emails para entrar em contato.
+- Criar página no facebook.
+- Criar postagens no insta/face.
+- Comprar box de contratos e freelas.
+- Procurar clientes.
+- Tirar um tempo do dia pra estudar e evoluir no design.
+- Valores dos nossos serviços.( Separados por artes, pacotes e etc)
+- Divulgar pra caralho as nossas páginas.( Behance, Face, Insta)
